@@ -1,4 +1,4 @@
-## Oie! Me chamo Sabrina. 👋
+## Oie! Me chamo Sabrina 👋
 
 
 
